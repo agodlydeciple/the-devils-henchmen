@@ -1,0 +1,4 @@
+## Chapter 3
+Ajax and Jackhammer got up and got the rest of the platoon together. In total there are eight of us, Ajax the leader, Jackhammer the muscle, Slick the mechanic, Crosshair the weapons specialist, Crucifix the mercenary, Arod the driver, Gorn the navigator, and Phanik the brain. All of us have had military experience and years of service, which is what makes us all so deadly. And on top of it all we are all related in one way or another.
+
+We all bunked up in an abandoned warehouse that has been modified for our needs. Phanik had installed a top noch security system. Slick had a mechanic system with eight vehicle ports. The warehouse was disguised as one of the dictator’s buildings in the middle of Manhattan. Every building surrounding it was the same, white building with three red lines.

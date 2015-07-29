@@ -1,0 +1,6 @@
+## Chapter 5
+As Phanik drove faster and faster into the sunset he thought as to why he was the one singled out for all the practical jokes in the platoon. Sure he wasn’t as buff and as tall as the other guys but without him they wouldn’t be where they were today. “Gah!” Phanik yelled pounding on the steering wheel of his car in frustration.
+
+Then out of nowhere something stepped out into the road, Phanik honked his horn, and for some reason whatever it was didn’t even move. Phanik can’t tell what it is on account of the fact that it is too far away, but as he draws closer he realizes that its one of the droids Nilap Haras designed to take out rebels. “Alright fine,” Phanik said to himself as he shifted down into fourth gear and popped a wheelie with his charger. “Let’s see how you like getting hit at eighty five with an eight hundred pound car.”
+
+Then for the first time the droid moved, but it only moved to reveal an RPG rocket launcher. “Oh shit,” Phanik thought as the droid took aim and fired off an RPG. Thinking fast Phanik maneuvered his car out of the firing path of the RPG, but when he avoided the rocket he overturned his car and slid to a stop. When the car stopped he crawled out yelling in agony.
